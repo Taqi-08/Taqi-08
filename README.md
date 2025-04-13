@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: 
      email: taqiullahrafeeqs2008@gmail.com
-     instagram: tequilaa_rs
+     instagram: @tequilaa_rs
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am just 16 years old✨🎀🎀
 
